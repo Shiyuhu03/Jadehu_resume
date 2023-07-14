@@ -19,7 +19,7 @@ __Brigham Young University-Idaho__, Idaho，Rexburg
 
 - Full academic scholarship with 4.0 GPA
 - Bachelor of Accounting
-- Audit/Tax
+- Audit/ Tax
 
 
 
